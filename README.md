@@ -1,0 +1,2 @@
+# zaky-resolusi
+cuman iseng
